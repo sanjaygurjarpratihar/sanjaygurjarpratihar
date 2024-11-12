@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @sanjaygurjarpratihar
+- 👀 I’m interested in building efficient and scalable application. 
+- 🌱 I’m currently learning Java Frameworks.
+- 📫 To reach me contact on 6261452882
+- 😊 www.linkedin.com/in/sanjay-gurjar-968
+- 😄 Pronouns: Sanju 
+- ⚡ Fun facts...
